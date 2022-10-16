@@ -1,6 +1,6 @@
 # CODE BLESS YOU
 
-I, Hackgets, am a tech-satirist.
+I am Hackgets Yamada. Leave weird stuff to me.
 
 - [DeviantArt](https://www.deviantart.com/hackgets)
 - [Hackgets Store](https://hackgets.booth.pm/)
